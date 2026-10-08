@@ -1,3 +1,2 @@
 O App Altmet Educação Financeira e Investimentos Digitais tem como objetivo difundir a Educação Financeira e os Investimentos Digitais. Para concluir esta atividade eu foquei na Altmet Education, segmento voltado a jovens e adolescentes, com a finalidade de conscientizar a importância do controle das finanças pessoais, desde cedo, para que estejam preparados para uma vida adulta estável e consciente fazendo melhor uso dos recursos financeiros disponíveis. Incluímos os fundamentos da boa gestão financeira e o conhecimento de investimentos em ativos digitais que é futuro desta nova geração; seleção e análise de criptoativos; gestão de risco; pesquisas de mercado; estratégias baseadas em dados.
-Opção 1 Link- https://lovable.dev/preview/K6Wo2D5PC0V227FtIuvJKgBAc6mjkWiO
-Opção 2 Link- https://lovable.dev/projects/9cfe4cab-ab92-4a4e-b6aa-4e4859b1d4bb
+(https://altmetassetsandeducation.lovable.app/)
